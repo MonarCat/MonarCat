@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @MonarCat
+- 👋 Hi, I’m Moses Mwombe
 - 👀 I’m interested in solving daily pain problems through helpful websites and softwares.
 - 🌱 I’m currently learning life
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on life changing projects.
 - 📫 How to reach me iammwombe@gmail.com
 - ⚡ Fun fact: ...
 
